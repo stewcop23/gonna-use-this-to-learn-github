@@ -1,3 +1,15 @@
 # gonna-use-this-to-learn-github
 
-main branch beggining
+second branch beggining
+
+a
+a
+a
+a
+
+a
+a
+a
+a
+a
+
